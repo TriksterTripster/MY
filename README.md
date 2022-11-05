@@ -9,3 +9,4 @@
 7. Я люблю читать книги
 8. Я живу в Нефтеюганске
 
+![mno-1](https://user-images.githubusercontent.com/116189985/200117833-e8993d65-de09-4580-94b1-93c10a4c6d65.jpg)
